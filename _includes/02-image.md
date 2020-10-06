@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+[A cute dog](https://bit.ly/3iCIMFp)
