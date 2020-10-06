@@ -1,1 +1,1 @@
-[Linkedin](https://www.linkedin.com/in/temitopeakinsoto)
+[Linkedin Profile](https://www.linkedin.com/in/temitopeakinsoto)
