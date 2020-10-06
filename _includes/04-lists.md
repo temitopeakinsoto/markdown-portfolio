@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+- I love writing codes
+- I enjoy reading and watching music videos
+- I also like hanging out with friends
