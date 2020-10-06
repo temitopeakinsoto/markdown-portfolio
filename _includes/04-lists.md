@@ -1,3 +1,4 @@
 - I love writing codes
 - I enjoy reading and watching music videos
 - I also like hanging out with friends
+- I also like learning new stuffs
